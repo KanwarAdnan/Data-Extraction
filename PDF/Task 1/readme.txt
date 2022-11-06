@@ -1,0 +1,1 @@
+all rights are reserved to kanwar adnan. distributions without permissions are prohibited!
